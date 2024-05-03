@@ -2,7 +2,7 @@
 - 👀 I’m interested in web designing
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on project
-- 📫 How to reach me chekwuberoseline36@gmail.com
+- 📫 How to reach me chekwuberoseline36@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
